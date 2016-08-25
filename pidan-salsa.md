@@ -17,3 +17,5 @@ I've doubled the amounts of all ingredients from the source.
 - salt + pepper
 
 Note: Remember to take out the seeds of the cucumbers, tomatoes, and chilis.
+
+Note: Try adding a little sesame oil in place of some of the olive oil.
