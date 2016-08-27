@@ -17,4 +17,4 @@ Note: Use ¾ teaspoon of medium-coarse salt for every 1 pound of meat. Don't use
 
 Note: You can use red cabbage instead of the usual green. Cabbage only needs to be cooked for 3 minutes under high pressure, but I prefer 5 in my pressure cooker.
 
-Note: Don't take the fat out, but make sure the fat is on top.
+Note: Don't remove the fat, but cut slits in it and make sure the fat is on top when you place the meat inside the cooker.
