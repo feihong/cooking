@@ -1,6 +1,6 @@
-# Feihong's Recipe Collection
+# Feihong's Cooking Notes
 
-A collection of interesting (food) recipes.
+A collection of recipes and thoughts on food.
 
 ## Recommended cooking channels
 
