@@ -10,7 +10,8 @@
 
 - 4 lb bone-in pork shoulder roast, cut into 2 pieces
 - 6 garlic cloves
-- 1 cabbage, cored, cut into wedges
+- 1 cup water
+- 1 cabbage, cored, cut into 6 wedges
 - 1 Tbsp liquid smoke
 - 1 Tbsp kosher salt
 
