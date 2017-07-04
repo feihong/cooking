@@ -7,7 +7,7 @@ https://www.youtube.com/watch?v=S1cDorMOpZE&t=8s
 ## Ingredients
 
 - 1/2 lb tofu 
-- 5 oz chrysanthemum greens
+- 6 oz chrysanthemum greens
 - 2 cloves garlic
 - 1 Tbsp soy sauce
 - 1 Tbsp vinegar
