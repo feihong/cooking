@@ -11,7 +11,8 @@
 - 4 cups chopped napa
 - 1 medium cucumber
 - 1 red bell pepper
-- 2 cup fresh cilantro leaves
+- 3 tsp grated ginger
+- 2 tsp sesame seeds
 - salt & pepper
 - hot red pepper flakes
 
