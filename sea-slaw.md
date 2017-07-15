@@ -46,6 +46,8 @@ Sauce:
 - soy sauce
 - sugar
 - peanuts
+- ginger
+- sesame seeds
 
 Salad:
 
