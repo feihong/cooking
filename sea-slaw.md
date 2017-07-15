@@ -25,6 +25,20 @@ Wakame:
 1. Drain and squeeze
 1. Cut
 
+Napa:
+
+1. Slice and put in colander
+1. Sprinkle with 2 tsp salt
+1. Let drain for 1 hour
+1. Rinse, squeeze dry, and drain
+
+Cucumber:
+
+1. Peel, seed, slice
+1. Put in colander
+1. Let drain for 1 hour
+1. Rinse and pat dry with paper towel
+
 Sauce:
 
 - mayonnaise
