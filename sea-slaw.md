@@ -18,6 +18,13 @@
 
 ## Instructions
 
+Wakame:
+
+1. Rinse
+1. Soak for 5 mins
+1. Drain and squeeze
+1. Cut
+
 Sauce:
 
 - mayonnaise
@@ -28,12 +35,13 @@ Sauce:
 
 Salad:
 
-- wakame
-- napa
-- cucumber
-- bell pepper
-- toss in sauce
-- when serving, add salt & pepper and toss again
+1. Mix:
+   - wakame
+   - napa
+   - cucumber
+   - bell pepper
+1. Toss in sauce
+1. When serving, add salt & pepper and toss again
 
 ## Sources
 
