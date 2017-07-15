@@ -27,15 +27,17 @@ Wakame:
 
 Napa:
 
-1. Slice and put in colander
+1. [Slice](https://www.youtube.com/watch?v=G508ZzInOhc)
+1. Put in colander
 1. Sprinkle with 2 tsp salt
 1. Let drain for 1 hour
 1. Rinse, squeeze dry, and drain
 
 Cucumber:
 
-1. Peel, seed, slice
+1. Peel, seed, [slice](https://www.youtube.com/watch?v=uNHeBequxi4)
 1. Put in colander
+1. Sprinkle with salt
 1. Let drain for 1 hour
 1. Rinse and pat dry with paper towel
 
