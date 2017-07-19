@@ -8,11 +8,11 @@
 - 2 onions
 - 1 carrot
 - salt & pepper
-- 1 Tbsp sesame oil
+- 1.5 Tbsp sesame oil
 - 2 Tbsp brown sugar
-- 2 Tbsp sake (or other cooking alcohol)
-- 4 Tbsp mirin
-- 4 Tbsp soy sauce
+- 3 Tbsp sake (or other cooking alcohol)
+- 6 Tbsp mirin
+- 6 Tbsp soy sauce
 
 ## Instructions
 
