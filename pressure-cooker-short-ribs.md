@@ -6,7 +6,7 @@
 - 2 in ginger
 - 3 cloves garlic
 - 2 onions
-- 1 carrot
+- 2 carrots
 - salt & pepper
 - 1.5 Tbsp sesame oil
 - 2 Tbsp brown sugar
