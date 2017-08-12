@@ -20,6 +20,8 @@ Source: [Just One Cookbook](http://www.justonecookbook.com/pressure-cooker-potat
 - Potatoes:
   - peel
   - cut into 1.5 inch pieces
+  - add 1 cup of water to pressure
+  - put steam basket in pressure cooker
   - pressure cook for 3 minutes (if electric, 5 otherwise)
   - natural release for 15-20 minutes
   - add 1/2 tsp salt
