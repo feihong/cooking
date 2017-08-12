@@ -1,6 +1,6 @@
 # Japanese-Style Potato Salad
 
-Source: [Juse One Cookbook](http://www.justonecookbook.com/pressure-cooker-potato-salad/)
+Source: [Just One Cookbook](http://www.justonecookbook.com/pressure-cooker-potato-salad/)
 
 ## Ingredients
 
@@ -17,7 +17,6 @@ Source: [Juse One Cookbook](http://www.justonecookbook.com/pressure-cooker-potat
 
 ## Instructions
 
-- Egg: boil and mash
 - Potatoes:
   - peel
   - cut into 1.5 inch pieces
@@ -33,7 +32,8 @@ Source: [Juse One Cookbook](http://www.justonecookbook.com/pressure-cooker-potat
   - massage with hands
   - dehydrate for 5 minutes
   - Rinse under water, squeeze out water, set aside
- -Combine:
+ - Egg: boil and mash
+ - Combine:
   - Add everything to big bowl
   - Add 4 Tbsp mayonnaise
   - Mix
