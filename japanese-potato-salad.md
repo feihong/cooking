@@ -33,9 +33,16 @@ Source: [Juse One Cookbook](http://www.justonecookbook.com/pressure-cooker-potat
   - massage with hands
   - dehydrate for 5 minutes
   - Rinse under water, squeeze out water, set aside
- 
-  Combine:
+ -Combine:
   - Add everything to big bowl
   - Add 4 Tbsp mayonnaise
   - Mix
   - Cover and chill in refrigerator
+
+## Variations
+
+Use pidan instead of normal boiled egg.
+
+Use fried tofu instead of ham?
+
+Add crispy nori strips?
