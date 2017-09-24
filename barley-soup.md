@@ -20,10 +20,10 @@ Source: How to Cook Everything Vegetarian
 
 - Heat oil in dutch oven
 - Add onions, cook 3 minutes
-- Add garlic, cook 1 minute
+- Add garlic, salt, pepper, cook 1 minute
 - Add barley, cook 5 minutes (until barley starts to toast)
 - Add stock & water, bring to boil
-- Simmer, cover, cook 10-15 (until barley begins to soften)
+- Simmer, cover, cook 10-15 minutes (until barley begins to soften)
 - Turn heat up to medium-high
 - Add root vegetables
 - Bring to boil
