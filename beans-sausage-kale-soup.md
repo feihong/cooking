@@ -1,6 +1,6 @@
 # Beans, Sausage, and Kale Soup
 
-Source: Pressure Perfect
+Source: Pressure Perfect by Lorna Sass
 
 ## Ingredients
 
@@ -31,3 +31,7 @@ Source: Pressure Perfect
  - Parboil kale leaves for a minute or so
  - Add kale leaves and remaining sausage (sliced)
  - Simmer for 3-5 minutes
+
+## Notes
+
+Great northern beans take 25 to 30 minutes to cook in pressure cooker, but since I am using an electric pressure cooker, I should subtract 2 minutes to account for the fact that natural pressure release takes longer for electric cookers.
