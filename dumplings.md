@@ -22,6 +22,7 @@
 |------|-------|
 | [Albert Yang](https://youtu.be/V1o9-82qizc?t=1m20s) | Easiest method (2 pinches), only produces a couple folds |
 | [田园时光Garden Time homemade cuisine](https://youtu.be/3_j2EhnN5xc?t=4m45s) | Multiple folds on one side |
+| [6 ways to fold a dumpling](https://www.youtube.com/watch?v=84-QPpmIleA) | Triangle, twisty rope, rose bud, pinch braid, one-direction crescent moon, two-direction crescent moon |
 
 ## Playlists
 
