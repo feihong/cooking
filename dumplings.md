@@ -6,19 +6,22 @@
 | Link | Type | Notes |
 |------|------|-------|
 | [Xiao's Kitchen](https://youtu.be/HBuz8LdWR94?t=1m50s) | Pork, cabbage, celery | Chop celery and cabbage before blanching, use cold water to cool, blend finely, squeeze dry. |
+| [田园时光Garden Time homemade cuisine](https://youtu.be/3_j2EhnN5xc?t=2m23s) | Pork, kale | No green onions. Kale not blanched. |
 
 ## Making the wrappers
 
 | Link | Notes |
 |------|-------|
 | [Maangchi](https://youtu.be/s0bliFUHiVA?t=1m19s) | Large wrappers. Doesn't add hot water to flour. |
+| [田园时光Garden Time homemade cuisine](https://youtu.be/3_j2EhnN5xc?t=29s) | Add vegetable oil to flour instead of salt. |
 
 
 ## Folding the dumplings
 
 | Link | Notes |
 |------|-------|
-| [Albert Yang](https://youtu.be/V1o9-82qizc?t=1m20s) | Easiest method, quite detailed, only produces a couple folds |
+| [Albert Yang](https://youtu.be/V1o9-82qizc?t=1m20s) | Easiest method (2 pinches), only produces a couple folds |
+| [田园时光Garden Time homemade cuisine](https://youtu.be/3_j2EhnN5xc?t=4m45s) | Multiple folds on one side |
 
 ## Playlists
 
