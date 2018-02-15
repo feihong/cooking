@@ -8,7 +8,7 @@
 | [Xiao's Kitchen](https://youtu.be/HBuz8LdWR94?t=1m50s) | Pork, cabbage, celery | Chop celery and cabbage before blanching, use cold water to cool, blend finely, squeeze dry. |
 | [田园时光Garden Time homemade cuisine](https://youtu.be/3_j2EhnN5xc?t=2m23s) | Pork, kale | No green onions. Kale added raw. |
 | [韭菜虾仁饺子](https://youtu.be/JgAbH2U4ol8) | Pork, shrimp, garlic chives | Uses homemade XO sauce. Chives are mixed with oil and added after meat mixture rests in fridge. |
-| [Pyeongchang Trout Dumplings](https://youtu.be/rk0rqH9IJDw?t=55s) | Substituting salmon for trout might not work that well |
+| [Pyeongchang Trout Dumplings](https://youtu.be/rk0rqH9IJDw?t=55s) | Trout, garlic chives, tofu, onion, cabbage, garlic | Substituting salmon for trout might not work that well |
 
 
 ## Making the wrappers
